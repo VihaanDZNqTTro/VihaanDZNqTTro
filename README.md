@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @VihaanDZNqTTro
 - 👀 I’m interested in Grapic Designing
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning After Effects
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me ...
 
